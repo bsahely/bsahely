@@ -1,4 +1,4 @@
-# Hi, I'm Sahely Banerjee :space_invader: 
+# Hi, I'm Sahely :space_invader: 
 
 **Senior Technical Business Analyst & Product Owner** · Bengaluru, India
 
